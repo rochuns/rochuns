@@ -1,3 +1,3 @@
-## shadows die twice.
+## aiyaa, four thousand years ⋆˚
 
-![Image](https://file.garden/Z-2b_9WhPAglb5Ie/NewProject1232E28EDD-ezgif.com-gif-maker.gif)
+![Image](https://file.garden/Z-2b_9WhPAglb5Ie/Untitled2095_20260120015151.png)
