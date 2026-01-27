@@ -17,6 +17,6 @@ interests/ charisma house, hypmic, chainsaw man, tshd, no home, cherrycrush, crk
 byf/ i ramble alot when i get comfortable aru! nn i do not use tonetags, please lmk if you want me to use them. : ) 
 
 dni/ basic dni, (hetalia specific: usuk/itacest shippers, sorry i get a little uncomfortable at the mention of these ships. :( (and also, not necessarily unallowed to interact, but
-if you *really* like belarus that might make it a bit harder for me to int with you!))
+if you *really* like belarus that might make me reluctant/hesitant to int with you!))
 
 **no rentry yet so i have to specify everything here aiyaa,, :,) hope u understand,,**
