@@ -6,7 +6,7 @@
 
 my name is scott/hell or you can call me wtv you want.. ^_^
 im a little shy, so i just lurk around the hetalia area hoping 4 an interaction.. but interactions are welcome aru! 
-tho if i don't respond, i'm likely busy. (sorry! im not trying to ignore anyone aru!)
+tho if i don't respond, i'm likely busy. (sorry! im not trying to ignore anyone aru TT)
 
 i love rochu and kinda see myself as wang yao. (sometimes ivan braginsky) : )
 
