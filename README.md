@@ -2,5 +2,21 @@
 
 ![Image](https://file.garden/Z-2b_9WhPAglb5Ie/Untitled2098_20260120020217.png)
 ## ♡˚· light my heart
-
 ![Image](https://file.garden/Z-2b_9WhPAglb5Ie/Tumblr_l_1184015554552469.gif)
+
+my name is scott/hell or you can call me wtv you want.. ^_^
+im a little shy, so i just lurk around the hetalia area hoping 4 an interaction.. but interactions are welcome aru! 
+tho if i don't respond, i'm likely busy. (sorry! im not trying to ignore anyone aru!)
+
+i love rochu and kinda see myself as wang yao. (sometimes ivan braginsky) : )
+
+some hetalia favs: italy veneziano & romano, austria, switzerland, china, russia, america, philippines, indonesia, england
+
+interests/ charisma house, hypmic, chainsaw man, tshd, no home, cherrycrush, crk, hetalia nn much more ^_^
+
+byf/ i ramble alot when i get comfortable aru! nn i do not use tonetags, please lmk if you want me to use them. : ) 
+
+dni/ basic dni, (hetalia specific: usuk/itacest shippers, sorry i get a little uncomfortable at the mention of these ships. :( (and also, not necessarily unallowed to interact, but
+if you *really* like belarus that might make it a bit harder for me to int with you!))
+
+**no rentry yet so i have to specify everything here aiyaa,, :,) hope u understand,,**
