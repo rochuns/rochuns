@@ -10,7 +10,7 @@ tho if i don't respond, i'm likely busy. (sorry! im not trying to ignore anyone 
 
 i love rochu and kinda see myself as wang yao. (sometimes ivan braginsky) : )
 
-some hetalia favs: italy veneziano & romano, austria, switzerland, china, russia, america, philippines, indonesia, england, sealand
+some hetalia favs: italy veneziano & romano, austria, switzerland, china, russia, america, philippines, indonesia, england, sealand, brazil
 
 interests/ **hetalia**, *charisma house*, hypmic, chainsaw man, tshd, no home, cherrycrush, crk, nn much more ^_^
 
