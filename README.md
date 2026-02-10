@@ -16,7 +16,7 @@ interests/ **hetalia**, *charisma house*, hypmic, chainsaw man, tshd, no home, c
 
 byf/ im quite shy and awkward if we first interact, and i start to  ramble alot when i get comfortable aru! also, i do not use tonetags, please lmk if you want me to use them. : ) 
 
-dni/ basic dni, proship/darkshippers, (hetalia specific: usuk/itacest shippers, sorry i get a little uncomfortable at the mention of these ships. :( (and also, not necessarily unallowed to interact, but
+dni/ basic dni, proship/darkshippers, (hetalia specific: usuk/itacest/caname shippers, sorry i get a little uncomfortable at the mention of these ships. :( (and also, not necessarily unallowed to interact, but
 if you *really* like belarus that might make me reluctant/hesitant to int with you!))
 
 **no rentry yet so i have to specify everything here aiyaa,, :,) hope u understand,,**
