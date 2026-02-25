@@ -12,7 +12,7 @@ i love rochu and kinda see myself as wang yao. (sometimes ivan braginsky) : )
 
 some hetalia favs: italy veneziano & romano, austria, switzerland, china, russia, america, philippines, indonesia, england, sealand, brazil, south korea, japan
 
-interests/ **hetalia**, *charisma house*, hypmic, chainsaw man, tshd, no home, cherrycrush, crk, nn much more ^_^
+interests/ **hetalia**, *charisma house*, hypmic, chainsaw man, tshd, no home, cherrycrush, crk, tgcf, mdzs nn much more ^_^
 
 byf/ im quite shy and awkward if we first interact, and i start to  ramble alot when i get comfortable aru! also, i do not use tonetags, please lmk if you want me to use them. : ) 
 
