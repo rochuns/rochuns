@@ -4,4 +4,4 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀and i only have myself to blame. ❞
 
-rentry & readme a wip. will work on when im not lazy
+i block freely, rentry & readme a wip. will work on when im not lazy
