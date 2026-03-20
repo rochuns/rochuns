@@ -3,3 +3,5 @@
 ⠀⠀⠀⠀⠀today, █████████ wishes for me to die horribly,
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀and i only have myself to blame. ❞
+
+rentry & readme a wip
